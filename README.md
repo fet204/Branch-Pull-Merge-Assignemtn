@@ -73,7 +73,11 @@ Javal, wired, drums on the steering wheel while driving. He
 glances at some expertly constructed, radio-control REMOTE
 UNITS sitting on the seat next to him.
 
+Both women are looking out into the parking lot. After a beat, Johnson 
+	gets up.
 
+				JOHNSON
+		I gotta pee.
 
 
 
