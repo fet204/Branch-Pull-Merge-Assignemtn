@@ -22,30 +22,19 @@ START
 The man who is holding the gun is HENRY LAFONTAINE, thirty, shaved 
 	head, expensive clothes.
 	
-	The undercarriage of the Mercedes is armored with steel. Javal
+	
+	
 stops at a patch of perforations -- an air exchange vent. He
 attaches a slim DEVICE over the vent, flips a switch on it,
 then rolls back toward the van.
 
 
+The undercarriage of the Mercedes is armored with steel. Javal
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+Carson cuts in front of them and slams on the brakes. He jumps
+out and grabs one of the Biker's machines by the handlebars,
+wrestling it to a stop. While pulling its BURLY OWNER off it:
 
 
 
