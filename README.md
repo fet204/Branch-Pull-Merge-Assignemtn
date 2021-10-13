@@ -3,10 +3,10 @@
 1. 
 2. 
 3. Jeremy Xaynakham
-4. Ellery Sarquilla
+4. 
 5. Ermiaas Mengisteab
 6. 
-7. 
+7. Ellery Sarquilla
 8. 
 
 
