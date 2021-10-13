@@ -27,7 +27,10 @@ stops at a patch of perforations -- an air exchange vent. He
 attaches a slim DEVICE over the vent, flips a switch on it,
 then rolls back toward the van.
 
-
+Sabatini takes a small two-way MOTOROLA RADIO out of her
+pocket and throws it through her window to Carson. Dropping it
+in his lap, he punches the gas. Robbins floors Dave's piece-of-
+shit Dodge, trying to keep up.
 
 
 
