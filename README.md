@@ -1,6 +1,6 @@
 # Branch-Pull-Merge-Assignemtn
 
-1. 
+1. Ozzy Vasquez
 2. 
 3. Jeremy Xaynakham
 4. 
