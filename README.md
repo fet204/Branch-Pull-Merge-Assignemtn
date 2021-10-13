@@ -1,7 +1,7 @@
 # Branch-Pull-Merge-Assignment
 
 1. Frank Tran
-2. 
+2. Ozzy Vasquez
 3. Jeremy Xaynakham
 4. 
 5. Ermiaas Mengisteab
