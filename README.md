@@ -40,7 +40,17 @@ wrestling it to a stop. While pulling its BURLY OWNER off it.
 
 
 
+War!  huuuuhh!  wo-ooh-wo-ooh-wo-oh!  
+		what's it good for?  absolutely 
+		nuthin'  good-gawd ya'll!
 
+	Lee gives it his best shot, trying to mimic Carter's dance move.  But 
+	it's more martial arts than dance.
+
+				LEE AND CARTER 
+		War!  huuuuhh!  wo-ooh-wo-ooh-wo-oh!  
+		what's it good for?  absolutely 
+		nuthin'  good-gawd ya'll
 
 
 
