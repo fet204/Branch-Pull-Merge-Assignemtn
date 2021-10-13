@@ -17,4 +17,30 @@ Wiki: https://en.wikipedia.org/wiki/Rush_Hour_(1998_film)
 just script: https://imsdb.com/scripts/Rush-Hour.html
 
 
+START
+
+The man who is holding the gun is HENRY LAFONTAINE, thirty, shaved 
+	head, expensive clothes.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
