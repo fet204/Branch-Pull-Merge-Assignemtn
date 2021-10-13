@@ -36,7 +36,7 @@ shit Dodge, trying to keep up.
 
 Carson cuts in front of them and slams on the brakes. He jumps
 out and grabs one of the Biker's machines by the handlebars,
-wrestling it to a stop. While pulling its BURLY OWNER off it:
+wrestling it to a stop. While pulling its BURLY OWNER off it.
 
 
 
