@@ -55,7 +55,23 @@ War!  huuuuhh!  wo-ooh-wo-ooh-wo-oh!
 This is really fun.
 
 
+SAM
+		I can't stand it -- half an hour to
+		get to the stupid school every
+		morning... with no music...
+			(Korean; subtitled)
+		[Just our damn Nanny...]
 
+EXT.  CRENSHAW BLVD - DAY
+
+Javal's van, also with tinted windows, turns onto Crenshaw. It
+follows the Mercedes, several cars behind it.
+
+INT.  JAVAL'S VAN - (MOVING SHOT) - DAY
+
+Javal, wired, drums on the steering wheel while driving. He
+glances at some expertly constructed, radio-control REMOTE
+UNITS sitting on the seat next to him.
 
 
 
