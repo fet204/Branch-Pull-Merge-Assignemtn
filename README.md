@@ -1,4 +1,4 @@
-# Branch-Pull-Merge-Assignemtn
+# Branch-Pull-Merge-Assignment
 
 1. Frank Tran
 2. 
