@@ -1,10 +1,10 @@
 # Branch-Pull-Merge-Assignemtn
 
-1. Ozzy Vasquez
+1. 
 2. 
 3. Jeremy Xaynakham
-4. Bill Le
-5. 
+4. 
+5. Ermiaas Mengisteab
 6. 
 7. 
 8. 
